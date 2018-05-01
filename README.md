@@ -1,1 +1,1 @@
-Just an old colelction of Pokemon Go Game Masters
+Just an old collection of Pokemon Go Game Masters
